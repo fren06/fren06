@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, Martial Arts, Gym, and Games
 - 🌱 I’m currently learning Computer Science at Malaysia
 - 💞️ I’m looking to collaborate on nothing for now
-- 📫 How to reach me email me at ezaddin.effandi1@gmail.com
+- 📫 How to reach me: email me at ezaddin.effandi1@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I want to build a business when i grow up
 
